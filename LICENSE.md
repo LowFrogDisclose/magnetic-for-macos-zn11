@@ -1,4 +1,4 @@
-
+Get the ultimate Magnetic for macOS tool with Magnetic for macOS advanced Tool: hotkey-customization & duplicate-finder. Featuring hotkey-customization and duplicate-finder, it's
 
 
 
